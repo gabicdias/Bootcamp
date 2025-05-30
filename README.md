@@ -9,7 +9,9 @@ Estudante de Ciência de Computação no Centro Universitário de Brasília (CEU
 
 **Habilidades:** Cooperação, confiança, habilidade de escutar, razão e argumentação, criatividade, autodidatismo e empatia.
 
+
 **Experiências**
+
 *Acadêmicas:*
 - Ensino Médio (finalizado) - Colégio Presbiteriano Mackenzie de Brasília
 - Graduação em Ciência da Computação - CEUB (cursando)
