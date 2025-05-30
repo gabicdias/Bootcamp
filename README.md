@@ -53,19 +53,16 @@ Estudante de Ciência de Computação no Centro Universitário de Brasília (CEU
 
 Durante os anos de 2022, 2023 e 2024, fui participante ativa da Simulação das Nações Unidas do Colégio Mackenzie de Brasília. Como participante do comitê da imprensa, eu era responsável por cobrir os acontecimentos dos outros comitês da simulação, criando o design de posts para as redes sociais, realizando entrevistas com os participantes, escrevendo reportagens sobre os eventos e crises, ajudando na filmagem e na edição de um telejornal e produzindo um jornal impresso da simulação. Esse projeto foi essencial para desenvolver melhor a minha criatividade e a minha capacidade de inovar.
 Instagram: @mackmunbrasilia
-Instagram: @mackmunbrasilia
 
 - Missionários Voluntários (2024)
 
 Em julho de 2024, participei do projeto Missionários Voluntários da Igreja Presbiteriana Nacional na cidade de Iaciara, Goiás, durante 5 dias. Esse projeto tem como objetivo evangelizar as pessoas que moram na cidade, realizando visitas de porta em porta e cultos abertos para todos. Além disso, também realizamos uma Escola Bíblica de Férias (EBF) para crianças de 2 a 12 anos, contando histórias, cantando músicas, fazendo brincadeiras e oferecendo lanches de forma gratuita. 
-Instagram: @mvsipn
+Instagram: @mvsipn.
 Site: ipn.org.br/mv 
-Instagram: @mvsipn
 
 - Coro Cênico (2022 - 2024)
 
 Durante os anos de 2022, 2023 e 2024 participei do Coro Cênico do Colégio Mackenzie de Brasília, um projeto artístico que junta o teatro com a música e a dança. Como participante, fiz parte de diversas apresentações, como os musicais principais do final de ano e pequenos shows em que cantei. 
-Instagram: @corocenico.mackbsb
 Instagram: @corocenico.mackbsb
 
 - Departamento infantil (Vinde meninas e meninos)
